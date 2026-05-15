@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with updated dex front-running bot | blockchain-scanning + price-impact-analysis, the #1 dex front-running bot. Includes blockchain-scanning and
 
 
 
